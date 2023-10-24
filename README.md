@@ -8,7 +8,7 @@ vivo en yopal👇
 
 estudio actualmente estudio en el sena un tecnologo de analisis y desarrollo de software👨‍🎓
 
-actualmente soy desempleado🖐
+actualmente estoy desempleado🖐
 
 
 
